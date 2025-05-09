@@ -1,3 +1,3 @@
 ## Hi there 👋
-![Alt Text](https://ibb.co/35hgQpyD)
+![Alt Text](https://i.ibb.co/7xysLnJw/Profile-banner-2.png)
 
